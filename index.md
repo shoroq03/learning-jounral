@@ -1,5 +1,7 @@
 # HALLO my name is shoroq ahmad 
 
+![image of growth midest](https://www.myoutdesk.com/wp-content/uploads/2019/03/fixed-vs-growth-mindset.jpg)
+
 I am 25 years old chemical engneering my hobbies is coooking ,drawing .
 
 **the growth mindest** is about to descibe the underlying beliefs people have about learning and intelligence.
